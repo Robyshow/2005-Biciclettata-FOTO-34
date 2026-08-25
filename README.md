@@ -1,1 +1,0 @@
-# 2005-Biciclettata-FOTO-34
